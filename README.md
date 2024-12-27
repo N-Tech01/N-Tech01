@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @N-Tech01
+- 👀 I’m interested in Enthical Hacking 
+- 🌱 I’m currently learning Ethical Hacking
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me navarath2011@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Nothing
